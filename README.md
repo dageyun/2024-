@@ -45,65 +45,64 @@
 
 
 
-[大哥云](https://honven20.dgywzc.com/#/register?code=lEHKtVDi) : 1天10G，3年老机场了。广州移动和湖南联通G口独享。可以付费。<a href="https://jichangtuijian.com/大哥云历史测速结果整合.html" target="_blank">大哥云拓扑结构检测和流媒体、历史测速结果合集</a>
+[大哥云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 1天10G，3年老机场了。广州移动和湖南联通G口独享。可以付费。<a href="https://jichangtuijian.com/大哥云历史测速结果整合.html" target="_blank">大哥云拓扑结构检测和流媒体、历史测速结果合集</a>
 
-[taishan泰山机场](https://jp.taishan.pro/register?code=HgVGfDEz)  ：最便宜8.5块/月64G起，新开的机场比较便宜吸引人。这个价格要啥自行车，适合要求不高的。稳定性和速度还行，优点就是便宜。
+[taishan泰山机场]((https://honven20.dgywzc.com/#/register?code=f9nQf2p1)   ：最便宜8.5块/月64G起，新开的机场比较便宜吸引人。这个价格要啥自行车，适合要求不高的。稳定性和速度还行，优点就是便宜。
 
-[快连](https://8m5tnb.onelink.me/0Iq2/72awzjy7) ：免费使用3天。有客户端。很出名了已经。到处都可以看到。
+[快连](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  ：免费使用3天。有客户端。很出名了已经。到处都可以看到。
 
  
-[Arisaka](https://reurl.cc/XG68o7):大带宽专线+隧道ss协议机场,南部是深圳入口全走专线；东部1倍率走隧道，3倍率走专线。15.99/月80G起，价格还行；注册可试用10G。8折优惠：UwtJ9Ov1
+[Arisaka](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) :大带宽专线+隧道ss协议机场,南部是深圳入口全走专线；东部1倍率走隧道，3倍率走专线。15.99/月80G起，价格还行；注册可试用10G。8折优惠：UwtJ9Ov1
 
-[Free机场](https://zero.76898102.xyz) : 较出名的免费白嫖机场。vless协议，部分客户端不支持。自行到商店购买订阅,官网很卡.甲骨文全家桶。监控探针：https://status.2c.lol   复制订阅后订阅不了节点可以使用订阅转换
+[Free机场](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 较出名的免费白嫖机场。vless协议，部分客户端不支持。自行到商店购买订阅,官网很卡.甲骨文全家桶。监控探针：https://status.2c.lol   复制订阅后订阅不了节点可以使用订阅转换
 
-[ssrsub](https://sub.ssrsub.com/) ：购买套餐输入优惠码【遥遥领先】 可以0u元购。可以买4次。直连机场。
+[ssrsub](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  ：购买套餐输入优惠码【遥遥领先】 可以0u元购。可以买4次。直连机场。
 
-[Speedy](https://cloud.speedypro.xyz/#/register?code=8e52hntA) : 7天10G
+[Speedy](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 7天10G
 
-[qlgq](https://www.qlgq.top/auth/register?code=a6a1efbae5)  7天888G
+[qlgq](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  7天888G
 
-[xqc.best](https://xqc.best/#/register?code=G7aUlkp2) 购买页面购买，可能没有了。
-
-
-[奈云](https://www.v2ny.com/#/register?code=baRRZ5rx) : 注册试用3天 5G，速度不错。
+[xqc.best](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  购买页面购买，可能没有了。
 
 
-[ikuuu](https://ikuuu.me/)  50G永久，直连
+[奈云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 注册试用3天 5G，速度不错。
 
 
-[盛丰](https://xn--iiq540h.com/auth/register?code=Wr2g)  5天1G
+[ikuuu](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  50G永久，直连
 
 
-
-[极光加速](https://jgjs02.com/#/register?code=v5uDx0Pv):极光加速，2 天 10G,试用节点多。
+[盛丰](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)   5天1G
 
 
 
-[一元机场]([Title](https://xn--4gq62f52gdss.com/#%252Fregister%253Fcode%253Dpqv3XyvY)) :11块/年，50g/月。这个价格不能要求太多。非常便宜的机场。
+[极光加速](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) :极光加速，2 天 10G,试用节点多。
 
 
-[雨燕云](https://yuyan.online/#/register?code=PDH6DJO0) : 8h 1G。隧道中转机场。全中转机场，入口：佛山移动，江苏宿迁移动。过境：广港隧道、苏日隧道。
 
-[极客加速器](https://board.jike99.xyz/#%252Fregister%253Fcode%253DDEWJpq74) :3天5G
-
-[FSCloud](https://dash.fscloud.cc/#/register?code=3Ml6pg2Y) : 3天10G,Azure拉全球
-
-[逗猫](https://doucat.top/index.php#/register?code=DSRm9DaO) :一天3G试用
-
-[魔戒](https://www.mojie.me/#/register?code=WRvvD3zu) :1块2G 试用套餐
-
-[besnow](https://besnow.me/index.php#/register?code=TyRVbl9i) :3天9G
+[一元机场](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :11块/年，50g/月。这个价格不能要求太多。非常便宜的机场。
 
 
-[狗头加速器](https://lksi.xyz/#/register?code=Yi5MH9Gl) :5天5G
+[雨燕云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 8h 1G。隧道中转机场。全中转机场，入口：佛山移动，江苏宿迁移动。过境：广港隧道、苏日隧道。
 
-[TaiShan Net](https://www.taishan.pro/#/register?code=bc96eHTt) :7天10G
+[极客加速器](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) :3天5G
 
-[速云](https://zhu.suyun.bio/auth/register?code=J2GW) ： 3天10G,Trojan协议
+[FSCloud](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 3天10G,Azure拉全球
 
-[GLaDOS](https://glados.space/landing/J9C19-MQ4YW-PE0G9-62FP3) :  免费4天,10G,签到一天续一天。
+[逗猫](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :一天3G试用
 
-[tly](https://tly.sh/2313972) ： 3天2G,3天签到一次可以继续使用，一直签一直能用。
+[魔戒](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :1块2G 试用套餐
+
+[besnow](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :3天9G
+
+
+[狗头加速器](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :5天5G
+
+[TaiShan Net](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :7天10G
+
+[速云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  ： 3天10G,Trojan协议
+
+[GLaDOS](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :  免费4天,10G,签到一天续一天。
+
 
 [sockboom](https://sockboom.love/auth/register?affid=513875) : 1天1G
 
