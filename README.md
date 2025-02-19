@@ -14,7 +14,8 @@
 
 ### 1）365VPN
 
-[365VPN](https://dageyun.com)  ，免费使用，输入邀请码： ZAATYQ ，额外领取3天使用时间
+[365VPN](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
+  ，免费使用，输入邀请码： ZAATYQ ，额外领取3天使用时间
 还有 15天无理由全额退款保证.[365VPN]
 
 
