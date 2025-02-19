@@ -5,26 +5,28 @@
 随手同步更新到这频道，博客更新了可能不知道：[ 大哥云代理vpn机场 https://dageyun.com](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
 
 
-掌握最新机场优惠折扣通知，最新机场推荐评测图，最新科学上网相关新闻与消息,欢迎关注 ：[telegram科学上网与机场观察频道](https://t.me/jichangtj)
+掌握最新机场优惠折扣通知，最新机场推荐评测图，最新科学上网相关新闻与消息,欢迎关注 ：[telegram科学上网与机场观察频道](https://t.me/kejizucom)
 便宜机场推荐，对自己好一点~ ：**<a href="https://github.com/hwanz/SSR-V2ray-Trojan/blob/main/README.md" target="_blank">便宜付费机场推荐</a>**  如果需要买付费机场。可以从这里挑选，我是专门做机场评测和推荐的
 
 **如果有帮助到您，点个Star鼓励我日常更新呗~**
 
 ## 一、免费软件
 
-### 1）365VPN
+### 1）大哥云
 
-[365VPN](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
+[大哥云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
   ，免费使用，输入邀请码： ZAATYQ ，额外领取3天使用时间
 还有 15天无理由全额退款保证.[365VPN]
 
 
 ### 2) 迷雾通： 
 
-[迷雾通免翻墙链接](https://waa.ai/xiazaimiwutong)
+[迷雾通免翻墙链接](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
 
 
-[官网，需要代理才能打开](https://geph.io/zhs/) 
+
+[官网，需要代理才能打开](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
+
 
 免费的应急用用还行，付费贵了。
 
@@ -42,7 +44,8 @@
 
 有些免费是暂时的，当前可能没有免费活动了。也可以购买我推荐的长期观察的付费机场。下面是免费机场，不一定还有免费试用活动，可以一个个试试看：
 
-[万达云官网](https://www.z1z1.top/vip)： 广东移动4G带宽公网中转机场，有条高倍率的IEPL线路。晚高峰测速带宽剩余足够。有按量付费的一次性永久流量套餐。如果需要按量的可以看看这家。这家机场的老板应该不少机场老板认识。有3G流量试用。
+[万达云官网](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) 
+： 广东移动4G带宽公网中转机场，有条高倍率的IEPL线路。晚高峰测速带宽剩余足够。有按量付费的一次性永久流量套餐。如果需要按量的可以看看这家。这家机场的老板应该不少机场老板认识。有3G流量试用。
 
 
 
