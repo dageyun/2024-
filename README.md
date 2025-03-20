@@ -108,51 +108,51 @@
 [GLaDOS](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  :  免费4天,10G,签到一天续一天。
 
 
-[sockboom](https://sockboom.love/auth/register?affid=513875) : 1天1G
+[sockboom](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 1天1G
 
 
-[KELECLOUD](https://panel.keleofficial.com/#/register?code=WrmwTUQR) : 1天 1G
+[KELECLOUD](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 1天 1G
 
-[大牛机场](https://daniu.e300daniu.top/#/register?code=OIdNxKQv) ：1h1G
-
-
-
-[快乐星球](https://klxq.djgskc.top/#/register?code=Z0fWF7Uc) : 7天10G 
-
-[BT3rd-Speed](https://px.bt3.one/#/register?code=hXGyTbwS) 6天10G
-
-
-[彩虹云](https://chy.fit/#/register?code=tOEHQarz) : 10G一天
-
-[宝贝云](https://v3ssy.xyz/#/register?code=IIL79wU9) : 1天2G
-
-
-[proxyvip](https://www.proxyvip.xyz/#/register?code=OwoZI8sC) : 1G一天
+[大牛机场](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) ：1h1G
 
 
 
-[大迅云](https://daxun.club/#/register?code=zMlVqbAy) : 10G 2天
+[快乐星球](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 7天10G 
+
+[BT3rd-Speed](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  6天10G
 
 
-[BCast](https://bcast.ink/#/register?code=bD3I2Lur) :6天10G
+[彩虹云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 10G一天
 
-[Bochidev](https://b0chi.r-yu.me/#/register?code=eVZImUhw):Hysteria协议,  50G/不限时，可重复购买,需要到下单页面购买
-
-[cd520](https://cd520.xyz/#/register?code=miSpepEF): 3天5G流量
-
-[翱翔云](https://www.aoxiangyun.top/auth/register?code=77d347ea69) : 7天20G,每天签到可获得 1天 VIP1等级及1000~5000MB流量,直连
-
-[Mickey](https://www.mickey.business/#/register?code=3guPMWLn) :3天2G
-
-[农夫山泉](https://sp.nfsq.me/#/register?code=ZVCgWJWa)：2 天 1G
+[宝贝云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 1天2G
 
 
-[cocolink](https://cocolink.org/#/register?code=0Fx6gdsk) : 7天64G，质量不大行，流量多时长久的都这样
+[proxyvip](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 1G一天
 
 
-[alori](https://oukasou.xyz/index.php#/register?code=69QSiIrz): 6 天 50G,4个节点
 
-[aimacloud](https://www.aimacloud.info/#/register?code=GK0C5aP3) : 6天 20G,中转
+[大迅云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 10G 2天
+
+
+[BCast](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) :6天10G
+
+[Bochidev](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) :Hysteria协议,  50G/不限时，可重复购买,需要到下单页面购买
+
+[cd520](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 3天5G流量
+
+[翱翔云](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 7天20G,每天签到可获得 1天 VIP1等级及1000~5000MB流量,直连
+
+[Mickey](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) :3天2G
+
+[农夫山泉](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) ：2 天 1G
+
+
+[cocolink](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 7天64G，质量不大行，流量多时长久的都这样
+
+
+[alori](https://honven20.dgywzc.com/#/register?code=f9nQf2p1) : 6 天 50G,4个节点
+
+[aimacloud](https://honven20.dgywzc.com/#/register?code=f9nQf2p1)  : 6天 20G,中转
 
 [Synapse](https://user.xinna.co/#/register?code=mTF6TTuu) : 3天 5G
 
